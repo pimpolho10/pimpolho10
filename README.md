@@ -4,4 +4,6 @@
 
 eu estudo na escola [nicota](instagram/escola.donanicota) 😸
 
+.
+
    
