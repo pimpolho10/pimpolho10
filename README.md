@@ -4,6 +4,10 @@
 
 eu estudo na escola [nicota](instagram/escola.donanicota) 😸
 
-.
+![](https://media1.tenor.com/m/mMdUSERZgGUAAAAC/kiss-love.gif)    ![](https://media1.tenor.com/m/ttaQnLrh8FoAAAAC/andteam-andteam-really-crazy-stage-clip.gif)
+
+
+
+
 
    
